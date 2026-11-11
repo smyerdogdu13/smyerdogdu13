@@ -1,1 +1,4 @@
-PİNEAPPLE 
+Sümeyye Erdoğdu 
+MIS
+PİNEAPPLE
+
